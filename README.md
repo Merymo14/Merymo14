@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Merymo14
 - 👀 I’m interested in Business Intelligence and Data Analytics...
 - 🌱 I’m currently working for Anheuser-Busch as a Businness Service Analyst
-- 💞️ I’m looking to collaborate on developing new skills and tools to improve performance and upgrade resume.
+- 💞️ I’m looking for new tools to develop stronger skills to help me improve my performance and upgrade resume, get better job opportunities and make my work easier.
 - 📫 How to reach me:  cell 619-906-9330, email: merymo14@yahoo.com 
 
 <!---
